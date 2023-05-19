@@ -1,6 +1,6 @@
 # Peer-review
 
-All of these reviews are based on the tasks I undertook beyond my regular job responsibilities.
+All of these reviews (except from audit team) are based on the tasks I undertook beyond my regular job responsibilities.
 
 I pay close attention to what's happening around me, always looking for problems to solve and coming up with practical solutions. I don't limit myself to a specific area or industry; I'm open to exploring different teams and functions. (Ideate)
 
